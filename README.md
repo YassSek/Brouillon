@@ -13,3 +13,6 @@ Hello!!
 Hello Again!
 ![Image Ana](https://i2.wp.com/atiempo.tv/wp-content/uploads/2019/10/Cansancio1.jpg?fit=780%2C439&ssl=1)
 
+Someday I will learn to code! 
+Un jour, j'apprendrai à coder!
+![Image Ana](https://jrmcoaching.com.br/wp-content/uploads/2017/03/Mente-Positiva.jpg)
