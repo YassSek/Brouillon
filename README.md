@@ -10,3 +10,6 @@ ajout edjane
 Lilo and stitch oui
 
 blalblzld
+https://tenor.com/fr/view/lilo-and-stitch-stitch-gif-20281537
+lilo gif
+
