@@ -30,3 +30,16 @@ ok
 
 Quelqu'un a supprimé tout ce que j'ai fait
 ![Image Ana](https://img.freepik.com/free-photo/offended-angry-woman-cross-hands-chest-frowning-sulking-insulted-standing-beige-background_1258-87274.jpg?w=1380&t=st=1690808805~exp=1690809405~hmac=bd667dced811996d5a6e14e41094244439a91b8ac3e618f524458cdac99246e0)
+
+## Imagine
+(https://media.istockphoto.com/id/1322277517/fr/photo/herbe-sauvage-dans-les-montagnes-au-coucher-du-soleil.jpg?s=612x612&w=0&k=20&c=tQ19uZQLlIFy8J6QWMyOL6lPt3pdSHBSDFHoXr1K_g0=)
+
+# Je ne sais pourquoi
+Je ne sais pourquoi
+Mon esprit amer
+D'une aile inquiète et folle vole sur la mer.
+Tout ce qui m'est cher,
+D'une aile d'effroi
+Mon amour le couve au ras des flots. Pourquoi, pourquoi ?
+... (https://www.poeticamundi.com/plus-beaux-poemes-sur-les-reves-et-limaginaire/)
+###### Paul Verlaine
